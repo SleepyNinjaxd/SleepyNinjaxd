@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Totally Not @SleepyNinjaxd
+- 👀 I’m interested in Nothing.
+- 🌱 I’m currently learning Scripting I think.........
+- 📫 How to reach me. Dont reach me!
